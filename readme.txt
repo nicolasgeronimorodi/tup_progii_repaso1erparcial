@@ -1,0 +1,1 @@
+resolucion propia de caso tipo parcial activad 06
